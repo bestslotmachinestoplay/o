@@ -2,7 +2,11 @@
 
 [![](https://i.ibb.co/rc97Pg3/casino.jpg)](http://playandclickcasinos.com/)
 
-Top 10 slots to play online - reviews of popular slot machines. Below you will find a list of the top 10 slot machines of 2022, tested by
+Top 10 slots to play online - reviews of popular slot machines. Below you will find a list of the top 10 slot machines of 2022
+
+When a player sits down at the next slot machine, he first looks at the visual style, and then pays attention to the features - which he saw in an advertisement or on the slot's start screen. These features are exactly what distinguishes one slot from another. They are patented and registered as trademarks. When a feature is successful, it can be reused in combination with other features or on a different reel set with slightly different volatility and payout distribution.
+
+A feature is often a small change in the rules that gives the false impression that the game will pay you. These can be unique symbols, re-spins, pushing the reels, paying side bonuses or increasing the number of free spins, etc. Whatever it does, it does not change the overall slot return to player (RTP) percentage, but only the perception of your chances of winning.
 
 ## Top Rated Slots
 
