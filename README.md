@@ -2,7 +2,7 @@
 
 [![](https://i.ibb.co/rc97Pg3/casino.jpg)](http://playandclickcasinos.com/)
 
-Top 10 slots to play online - reviews of popular slot machines. ... Below you will find a list of the top 10 slot machines of 2022, tested by
+Top 10 slots to play online - reviews of popular slot machines. Below you will find a list of the top 10 slot machines of 2022, tested by
 
 Book of Dead (Play'n Go). 
 
@@ -19,3 +19,5 @@ Dynamite Riches (Red Tiger).
 Wild Drops (Betsoft).
 
 Dead or Alive (NetEnt).
+
+In fact, there are no absolutely free MMORPG games. If they exist, they do not have the quality that attracts crowds of players.
