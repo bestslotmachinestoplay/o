@@ -23,3 +23,19 @@ Wild Drops (Betsoft).
 Dead or Alive (NetEnt).
 
 In fact, there are no absolutely free MMORPG games. If they exist, they do not have the quality that attracts crowds of players.
+
+Therefore, the issuance of slot machines is based on a rating system. The most popular games will be offered to you first, such as: 3 Fruits Win and Fruits and Jokers
+
+Slot players are not reckless
+
+Slot players are gamblers. Pressing the SPIN button, although it looks like a simple action, the mental processes at the same time are not. Gamblers base their decisions on how the features of the game work and what kind of wins or "near-wins" they get. This is called the potential of the mathematical model.
+
+All casino games have a certain return to player percentage (RTP), so how players win and how often they do so becomes an important differentiating factor. How else do certain games become more popular than others? Due to volatility and distribution of payments - the basic mathematical terms used in the development of slots.
+
+Design first, then math
+
+There is a saying among slot developers: “the visual style attracts players, the math keeps them”.
+
+Like a shop window with a bad sign or a book with a bad cover, a very good mathematical model can suffer if the design doesn't attract new customers. However, what attracts one person may be completely indifferent to another. Therefore, it is not so much the design that is important, but the variety in order to reach more players. The overlay of a new visual theme on the same mathematical model is called a skin. A new promising math model can be released on multiple skins.
+
+One day, a beautifully executed game with a Chinese theme failed within the first month of its release. The skin of that model, done by another team with a unique, pre-rendered 3D design, was already in the final stages of development. We didn't want to change it because it had just received the approval of the GLI, the watchdog of the industry, and the marketing and sales departments were ready to launch campaigns. So we released the skin, and you won't believe it, but it's gone. The same math, the same elements, rendered differently, gave completely different results.
